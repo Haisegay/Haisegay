@@ -1,0 +1,10 @@
+- 👋 Hi, I’m Hải Sẽ Gầy
+- 👀 I’m interested in lập trình ứng dụng
+- 🌱 I’m currently learning Trường THPT Hòa Hội
+- 💞️ I’m looking to collaborate on Facebook and Zalo
+- 📞 liên hệ với tôi qua facebook
+- 💪luôn đề cao sức khẻo của mình lên hàng đầu
+- 👂luôn lắm nghe người khác nói mổi khi họ cần
+- 📚 đam mê đọc truyện hãy đến với tôi
+- 🎵 âm nhạc là một thứ không thể thiếu trong mổi lúc nghĩ ngơi
+- 🌚 hiểu ý tôi chứ!
